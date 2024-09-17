@@ -7,3 +7,5 @@ looking 4 friends b4 i quit pt again ❤️
 whisp/sit wirh me if u want idm (Im not really talkative unless u talk to me first)
 
 erm dni if profic or encourage identity delusions ! ur strange
+
+<a href="https://github.com/celebi-ii">I hate rhis kid 🙄</a>
