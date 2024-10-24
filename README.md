@@ -3,6 +3,6 @@
 thats dollar sign  
 xe/xem 15 selective mutism  
 talk 2 me if you wanna know more  
-if u encourage identity delusions dni i hate you
+if u encourage identity delusions or say "me irl" dni i hate you
 
 this game fucking sucks a lot of you need to go outside  
