@@ -4,4 +4,4 @@ thats dollar sign
 xe/xem 15 selective mutism  
 i like stuff :p talk 2 me if you wanna know abt me  
 
-this game fucking sucks go outside
+this game fucking sucks a lot of you need to go outside
