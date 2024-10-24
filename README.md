@@ -2,6 +2,7 @@
 
 thats dollar sign  
 xe/xem 15 selective mutism  
-i like stuff :p talk 2 me if you wanna know abt me  
+talk 2 me if you wanna know more  
+if u encourage identity delusions dni i hate you
 
-this game fucking sucks a lot of you need to go outside
+this game fucking sucks a lot of you need to go outside  
